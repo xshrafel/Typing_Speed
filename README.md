@@ -1,1 +1,1 @@
-# Typing_Speed
+# Typing Speed
